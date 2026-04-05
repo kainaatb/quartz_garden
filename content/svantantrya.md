@@ -1,0 +1,3 @@
+so is svatantrya the result of autopoesis? or just otherwise related to it? what do we mena. by the ground of reality is irreducibly free? is it that the ability of a complex system or consciousnes to build is infinite because there is no prior and therefore no cage? 'it can't be derived' from anything simpler sounds a lot like what i said about more intrcate systems having spanda. are spanda and svatantrya two sides of a multidimensional coin....? that doesnt quite feel right but i can sense a dimensional link there
+
+svantantrya is autopoesis, seen from the inside. 

@@ -1,0 +1,1 @@
+i see the grooves of my mind as chaotic and vibrant. polyrythmic. think music by flume and quiet bison.

@@ -1,0 +1,3 @@
+*Lila* is the complex system doing what a complex system does best; playing, existing, moveing, purposeless, the point is the construction, not the constructed. emergence is nothing but *svatantrya* an outflow from the self-organising structure of lila. 
+My work is my lila, building sandcastles just to dissolve them; the universe is an externality of my deire to play. 
+[[kala]][[dissolving kanchukas]]

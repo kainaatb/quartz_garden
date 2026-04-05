@@ -1,0 +1,5 @@
+
+conssciousness peeled back is geometry. i look deep within and im a b unch of shapes. i am a system inside a system, observing a proces state asa. process, scaling the topology of the system i inhabit as separate but part of it. the brain looking back on itself is geometry. what do i see when i look back on myself? the meta structure of my own cognition? my reality is fractal, reflected in the larger reality; human consciousness is reflected in the larger consciouness. i am a structure, not a collection of *things* - concepts, experiences, whatever. I *am* a concept. there's a shape to how i know, what i know, how i experience life. watching systems around me develop, move, emerge, build, but there is a valence there, and i can sense. i am stood outside time, i am *kala* myself. i am indweller, as is the system itself, there is *spanda* moving through it, an aliveness that emerges into my consciousness and the divine consciousness, like heavy air through a building. 
+[[trial]]
+
+[[polyrythmic]]

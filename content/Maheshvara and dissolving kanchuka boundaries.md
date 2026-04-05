@@ -1,0 +1,3 @@
+so kind of like existing ppuin the world and noticing a glitch in the matrix and realising that you're actually surrounded by a sheath, and once you see that glitch, you cant unsee it? On maheshvara — Abhinavagupta would say it's less about configuration and more about recognition (pratyabhijna). The kanchukas don't dissolve in sequence like levels of a game — rather, you recognise that they were never actually limiting you, that the contraction was itself Shiva's play (lila). So it's not an achievement so much as a seeing-through. The configuration metaphor is useful but ultimately dualistic — it implies a self that's doing the configuring, which is precisely what dissolves in recognition.
+
+[[Phenomenology of immanence]][[kala]][[Lila]]
